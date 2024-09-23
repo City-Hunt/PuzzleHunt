@@ -9,6 +9,13 @@ https://imaginartejuegos.com/ejmddv/
 https://imaginartejuegos.com/
 
 External companies
+
 [City box](https://escapecitybox.com/)
 
 [Escape City](https://escapethecity.es/)
+
+History
+
+https://puzzles.mit.edu/ 
+
+https://en.wikipedia.org/wiki/Puzzle_hunt 
